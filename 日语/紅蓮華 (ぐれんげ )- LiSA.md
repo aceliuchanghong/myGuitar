@@ -1,24 +1,3 @@
-```url
-https://www.jpmarumaru.com/tw/JPSongPlay-13620.html
-```
-[first]:../img/紅蓮華/img.png
-![first]
-
-[second]:../img/紅蓮華/img_1.png
-![second]
-
-[third]:../img/紅蓮華/img_2.png
-![third]
-
-[fourth]:../img/紅蓮華/img_3.png
-![fourth]
-
-[fiveth]:../img/紅蓮華/img_4.png
-![fiveth]
-
-[sixth]:../img/紅蓮華/img_5.png
-![sixth]
-
 ### Cpao=0
 
 C &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; D &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;   Em &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;              Bm
