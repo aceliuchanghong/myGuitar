@@ -1,37 +1,47 @@
+Capo=0
+DUDU
 
-
-C      Am        Dm7       G7
-
+[Verse 1]
+    E         C#m        F#m       B7
 Who knows how long I've loved you?
-C      Am       Em
+    E      C#m      G#m
 You know I love you still
-C7     F      G      Am
+E7   A      B      C#m      E7
 Will I wait a lonely lifetime?
-C7      F       G     | C Am | Dm7 G(sus4) |
+(E7)    A     B      E | C#m | F#m | B7
 If you want me to, I will
-
+[Bridge]
+e|0-----0----------|0-----0----------|
+B|--2-----2-0------|--2-----2-0------|
+G|----1-------0H1--|----2-------0H1--|
+D|-----------------|-----------------|
+A|-----------------|-----------------|
+E|-----------------|-----------------|
 
 [Verse 2]
-C    Am   Dm7     G7
+    E    C#m   F#m   B7
 For if I ever saw you
-C      Am         Em
+E        C#m        G#m
 I didn't catch your name
-C7     F     G      Am
+E7     A      B      C#m      E7
 But it never really mattered
-C7      F      G       | C C7 |
+(E7)    A     B      E | E7
 I will always feel the same
-
-
 [Bridge]
-F           Em7  Am   ( Asus2 Am )
-Love you forever and forever
-Dm7           G      | C C7 |
-Love you with all my heart
-F            Em7  Am     ( Asus2 Am )
-Love you whenever we're together
-D7                   G
-Love you when we're apart
+e|0--------------|
+B|---3-2-0-------|
+G|-1-------0H1---|
+D|---------------|
 
+[Verse 3]
+A         G#m     C#m     
+Love you forever and forever
+F#m           B7   E | E7
+Love you with all my heart
+A         G#m     C#m   
+Love you whenever we're together
+F#m                   B7  
+Love you when we're apart
 
 [Verse 3]
 C       Am     Dm7      G7
