@@ -42,29 +42,25 @@ A         G#m     C#m
 Love you whenever we're together
 F#m                   B7  
 Love you when we're apart
+e|---------------|-0--------------|------------2-|--7-5-4-3------|
+B|-----2-4-5---0-|--0---3-2-0-----|-----2-4-5----|---------------|
+G|-2-1-------2---|----1-------0H1-|-2-1-------3--|-8-6-4-3-3-1---|
+D|---------------|----------------|--------------|---------------|
+A|---------------|----------------|--------------|---------------|
+E|---------------|----------------|--------------|---------------|
 
-[Verse 3]
-C       Am     Dm7      G7
+[Verse 4]
+    E       C#m    F#m     B7
 And when at last I find you
-C         Am       Em
+    E         C#m    G#m
 Your song will fill the air
-1   +   2  +  3   +   4  +  |
-C7      F       G    | Am      Fm/Ab C/G
+E7     A         B      C#m |Am| E7
 Sing it loud, so I can hear you
-1   +   2   +  3   +   4  +  |
-F    G   | Am      Fm/Ab  C/G
+(E7)   A         B      C#m |Am| E7
 Make it easy to be near you
-1   +   2  +  3  +   4  +  |
-F          G  | Am      Fm/Ab C/G    Cdim/Gb
+(E7)   A         B      C#m |Am| E7         Bbdim
 For the things you do endear   you   to     me
-Dm7     G6    | Ab7 | % |  C | % |
+F#M    B7       C/G //////   E/////  
 Oh, you know I will  ... I will ...
-
-
 [Coda]
-F           Em7
-Mh, mh, mh, mh, mh
-Am    ( Asus2   Am )
-Mh, mh, mh, mh, mh
-Dm7             G7      C
-Da, da, da ,da, da, da, dah
+A//G#m//C#m/F#m//B7//Emaj7
