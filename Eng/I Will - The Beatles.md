@@ -61,13 +61,13 @@ E|---------------|----------------|
 And when at last I find you
     E         C#m    G#m
 Your song will fill the air
-E7     A         B      C#m |Am| E7
+E7     A         B      C#m |Am*| E7
 Sing it loud, so I can hear you
-(E7)   A         B      C#m |Am| E7
+(E7)   A         B      C#m |Am*| E7
 Make it easy to be near you
-(E7)   A         B      C#m |Am| E7         Bbdim
+(E7)   A            B   C#m |Am*| E         Bbdim
 For the things you do endear   you   to     me
-F#M    B7       C/G //////   E/////  
+F#m    B7       C/G //////   E/////  
 Oh, you know I will  ... I will ...
 [Coda]
 A//G#m//C#m/F#m//B7//Emaj7
