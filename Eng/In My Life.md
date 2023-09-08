@@ -1,5 +1,5 @@
-There are places I'll remember
 
+There are places I'll remember
 有些地方我仍然记得
 
 All my life, though some have changed
