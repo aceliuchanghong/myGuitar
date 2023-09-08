@@ -38,57 +38,57 @@ When you said "I do like you." I laughed
 
 Cuz you are my favourite too
 
-Super Idolâ€™s biggest smileâ€™s nothing next to you
-Super idolçš„ç¬‘å®¹éƒ½æ²¡ä½ çš„ç”œ
-When youâ€™re shining like the sun in the midday hue
-ä½ æ¯”é‚£ç‚½çº¢æ—¥è½®ç‡ƒçƒ§å¾—æ›´åŠ è€€çœ¼
-Youâ€™ve got nothing left to prove to me
-ä½ å·²æ— é¡»å‘æˆ‘è¯æ˜ä»€ä¹ˆ
-Cos youâ€™re perfect in every way
-ä½ çš„ä¸€è§’ä¸€éš…éƒ½å®Œç¾æ— ç¼º
+Super Idol¡¯s biggest smile¡¯s nothing next to you
+Super idolµÄĞ¦Èİ¶¼Ã»ÄãµÄÌğ
+When you¡¯re shining like the sun in the midday hue
+Äã±ÈÄÇ³ãºìÈÕÂÖÈ¼ÉÕµÃ¸ü¼ÓÒ«ÑÛ
+You¡¯ve got nothing left to prove to me
+ÄãÒÑÎŞĞëÏòÎÒÖ¤Ã÷Ê²Ã´
+Cos you¡¯re perfect in every way
+ÄãµÄÒ»½ÇÒ»Óç¶¼ÍêÃÀÎŞÈ±
 I love how that twinkle in your eye
-æˆ‘çˆ±ä½ é‚£åŒçœ¼é—ªçƒç€æ˜Ÿæµ·
+ÎÒ°®ÄãÄÇË«ÑÛÉÁË¸×ÅĞÇº£
 Emerges every time
-ä¸€å¼€ä¸€é˜–æ˜¯æ˜Ÿçœ¸ç’€ç’¨
+Ò»¿ªÒ»ãØÊÇĞÇíøè­è²
 you turn to me and smile
-ä½ å›çœ¸æœ›æˆ‘ ç¬‘é¢œç»½å¼€
-I love how youâ€™re naturally kind
-æˆ‘æ·±çˆ±ä½ è‡ªç„¶çº¯çœŸçš„å–„è‰¯
-Your shy and yet youâ€™re still not afraid to say whatâ€™s right
-è™½æ˜¯ç¾æ€¯ ä½†ä»ä¸æƒ§åéœ²çœŸè¨€
-And how youâ€™d never give up on your childhood dreams
-æˆ‘æ·±çˆ±ä½ è¿½é€å„¿æ—¶ç¾æ¢¦çš„æ‰§æ‹—
+Äã»ØíøÍûÎÒ Ğ¦ÑÕÕÀ¿ª
+I love how you¡¯re naturally kind
+ÎÒÉî°®Äã×ÔÈ»´¿ÕæµÄÉÆÁ¼
+Your shy and yet you¡¯re still not afraid to say what¡¯s right
+ËäÊÇĞßÇÓ µ«ÈÔ²»¾åÍÂÂ¶ÕæÑÔ
+And how you¡¯d never give up on your childhood dreams
+ÎÒÉî°®Äã×·Öğ¶ùÊ±ÃÀÃÎµÄÖ´ŞÖ
 No matter how crazy they seem
-æ— è®ºé‚£æ¢¦æœ‰å¤šå¼‚æƒ³å¤©å¼€
-Cos to you theyâ€™re as precious as inhaling the air you breathe
-å¯¹ä½ æ¥è¯´éƒ½å¦‚èµ–ä»¥ç”Ÿå­˜çš„ç©ºæ°”çè´µ
-Super Idolâ€™s biggest smileâ€™s nothing next to you
-Super idolçš„ç¬‘å®¹éƒ½æ²¡ä½ çš„ç”œ
-When youâ€™re shining like the sun in the midday hue
-ä½ æ¯”é‚£ç‚½çº¢æ—¥è½®ç‡ƒçƒ§å¾—æ›´åŠ è€€çœ¼
-Youâ€™ve got nothing left to prove to me
-ä½ å·²æ— é¡»å‘æˆ‘è¯æ˜ä»€ä¹ˆ
-Cos youâ€™re perfect in every way
-ä½ çš„ä¸€è§’ä¸€éš…éƒ½å®Œç¾æ— ç¼º
-Donâ€™t forget to wear your smile even when you fall
-å³ä¾¿èº«é™·å›°å¢ƒ ä¹Ÿåˆ«å¿˜è®°æŒ‚ä¸Šé‚£ç¬‘é¢œ
+ÎŞÂÛÄÇÃÎÓĞ¶àÒìÏëÌì¿ª
+Cos to you they¡¯re as precious as inhaling the air you breathe
+¶ÔÄãÀ´Ëµ¶¼ÈçÀµÒÔÉú´æµÄ¿ÕÆøÕä¹ó
+Super Idol¡¯s biggest smile¡¯s nothing next to you
+Super idolµÄĞ¦Èİ¶¼Ã»ÄãµÄÌğ
+When you¡¯re shining like the sun in the midday hue
+Äã±ÈÄÇ³ãºìÈÕÂÖÈ¼ÉÕµÃ¸ü¼ÓÒ«ÑÛ
+You¡¯ve got nothing left to prove to me
+ÄãÒÑÎŞĞëÏòÎÒÖ¤Ã÷Ê²Ã´
+Cos you¡¯re perfect in every way
+ÄãµÄÒ»½ÇÒ»Óç¶¼ÍêÃÀÎŞÈ±
+Don¡¯t forget to wear your smile even when you fall
+¼´±ãÉíÏİÀ§¾³ Ò²±ğÍü¼Ç¹ÒÉÏÄÇĞ¦ÑÕ
 You can never really lose love can conquer all
-ä½ æ°¸ä¸ä¼šè¢«å‡»å€’ çˆ±èƒ½æˆ˜èƒœä¸€åˆ‡
-Youâ€™ve got nothing left to prove to me
-ä½ å·²æ— é¡»å‘æˆ‘è¯æ˜ä»€ä¹ˆ
-Cos youâ€™re perfect in every way
-ä½ çš„ä¸€è§’ä¸€éš…éƒ½å®Œç¾æ— ç¼º
-Donâ€™t forget to wear your smile even when you fall
-å³ä¾¿èº«é™·å›°å¢ƒ ä¹Ÿåˆ«å¿˜è®°æŒ‚ä¸Šé‚£ç¬‘é¢œ
+ÄãÓÀ²»»á±»»÷µ¹ °®ÄÜÕ½Ê¤Ò»ÇĞ
+You¡¯ve got nothing left to prove to me
+ÄãÒÑÎŞĞëÏòÎÒÖ¤Ã÷Ê²Ã´
+Cos you¡¯re perfect in every way
+ÄãµÄÒ»½ÇÒ»Óç¶¼ÍêÃÀÎŞÈ±
+Don¡¯t forget to wear your smile even when you fall
+¼´±ãÉíÏİÀ§¾³ Ò²±ğÍü¼Ç¹ÒÉÏÄÇĞ¦ÑÕ
 Cos I know that in this world love can conquer all
-å› æˆ‘çŸ¥é“è¿™ä¸–ä¸Š çˆ±èƒ½æˆ˜èƒœä¸€åˆ‡
-Youâ€™ve got nothing left to prove to me
-ä½ å·²æ— é¡»å‘æˆ‘è¯æ˜ä»€ä¹ˆ
-Cos youâ€™re perfect in every way
-ä½ çš„ä¸€è§’ä¸€éš…éƒ½å®Œç¾æ— ç¼º
+ÒòÎÒÖªµÀÕâÊÀÉÏ °®ÄÜÕ½Ê¤Ò»ÇĞ
+You¡¯ve got nothing left to prove to me
+ÄãÒÑÎŞĞëÏòÎÒÖ¤Ã÷Ê²Ã´
+Cos you¡¯re perfect in every way
+ÄãµÄÒ»½ÇÒ»Óç¶¼ÍêÃÀÎŞÈ±
 Just take a little sip of life
-æ…¢å•œè¿™äººç”Ÿé…¿å°±çš„ç¾é…’
+Âıà¨ÕâÈËÉúÄğ¾ÍµÄÃÀ¾Æ
 And open up your weary mind
-æ”¾æ¾å€¦æ€ çš„å¿ƒç¥
+·ÅËÉ¾ëµ¡µÄĞÄÉñ
 And realise
-äº«å—è¿™ç¾å¥½ç”Ÿæ´»
+ÏíÊÜÕâÃÀºÃÉú»î
