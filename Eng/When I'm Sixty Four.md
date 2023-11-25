@@ -1,107 +1,98 @@
+Capo=1st
 
-When I get older losing my hair
+![img.png](..%2Fimg%2FWhen%20I%27m%20Sixty%20Four%2Fimg.png)
 
-Many years from now
+[Verse 1]
 
-Will you still be sending me a valentine
-
-Birthday greetings, bottle of wine?
-
-
-If I'd been out till quarter to three
-
-Would you lock the door
-
-Will you still need me, will you still feed me
-
-When I'm sixty-four?
+C
+When I get older losing my hair,
+                G
+Many years from now.
+G
+Will you still be sending me a Valentine.
+                    C
+Birthday greetings, bottle of wine.
 
 
-You'll be older too
+[Verse 2]
 
-And if you say the word
+C
+If I'd been out till quarter to three.
+C7                   F
+Would you lock the door.
+F              Fm       C              A
+Will you still need me, will you still feed me,
+D        G7     C
+When I'm sixty-four.
 
-I could stay with you
+
+[Bridge 1]
+
+Am              E
+You'll be older too,
+Am            D7
+And if you say the word,
+F       G         C
+I could stay with you.
 
 
-I could be handy mending a fuse
+[Verse 3]
 
-When your lights have gone
-
+C
+I could be handy, mending a fuse
+                        G
+When your lights have gone.
+G7
 You can knit a sweater by the fireside
-
-Sunday mornings go for a ride
-
-
+                C
+Sunday morning, go for a ride,
 
 
-Doing the garden, digging the ****s
+[Verse 4]
 
-Who could ask for more?
-
-
+C
+Doing the garden, digging the weeds,
+C7                 F
+Who could ask for more.
+F              Fm       C              A
 Will you still need me, will you still feed me
+D        G7    C
+When I'm sixty-four.
 
-When I'm sixty-four?
 
+[Bridge 2]
 
-
-Every summer we can rent a cottage
-
-每个夏天，我们可以去租一个小屋
-
+Am
+Every summer we can rent a cottage,
+G                      Am
 In the Isle of Wight, if it's not too dear
-
-在怀特岛，假如不是太贵的话
-
+Am                  E
 We shall scrimp and save
-
-我们应该省吃俭用
-
+Am               D7
 Grandchildren on your knee
-
-孙子孙女们坐在你的膝盖上
-
-Vera, Chuck, and Dave
-
-Vera，Chuck和Dave
+F     G         C
+Vera, Chuck and Dave
 
 
+[Verse 5]
 
-Send me a postcard, drop me a line
-
-给我寄一张明信片，写一封信
-
-Stating point of view
-
-告诉我你的想法
-
+C
+Send me a postcard, drop me a line,
+                G
+Stating point of view.
+G
 Indicate precisely what you mean to say
-
-直接地告诉我你想说的话
-
-Yours sincerely, wasting away
-
-省略掉“yours sincerely”
+                    C
+Yours sincerely, Wasting Away.
 
 
+[Verse 6]
 
+C
 Give me your answer, fill in a form
-
-给我你的答案，填满我的表格
-
+C7           F
 Mine for evermore
-
-我始终如一
-
-Will you still need me, will you still feed me
-
-你还会需要我吗，你还会照顾我吗
-
+F              Fm       C              A
+Will you still need me, will you still feed me,
+D7       G7    C
 When I'm sixty-four?
-
-在我六十四岁的时候
-
-
-
-Whoo!
