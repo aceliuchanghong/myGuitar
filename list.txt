@@ -21,3 +21,5 @@ everything
 potplayer
 ffmpeg
 Pr
+anaconda
+迅雷==>md,别装
