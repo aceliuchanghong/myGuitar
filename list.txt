@@ -20,6 +20,7 @@ docker
 everything
 potplayer
 ffmpeg
-Pr
+Pr==https://www.rjctx.com/dnrj/lupin
+badicam==>https://www.rjctx.com/dnrj/lupin
 anaconda
 迅雷==>md,别装
