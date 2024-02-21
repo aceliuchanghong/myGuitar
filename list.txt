@@ -23,4 +23,5 @@ ffmpeg
 Pr==https://www.rjctx.com/dnrj/lupin
 badicam==>https://www.rjctx.com/dnrj/lupin
 anaconda
+idm
 迅雷==>md,别装
