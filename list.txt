@@ -24,3 +24,5 @@ Pr==https://www.rjctx.com/dnrj/lupin
 badicam==>https://www.rjctx.com/dnrj/lupin
 anaconda
 Riffstation==>吉他扒谱(baiduyun)
+adobe acrobat
+flow==>https://app.flowoss.com/
