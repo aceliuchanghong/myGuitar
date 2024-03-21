@@ -23,5 +23,4 @@ ffmpeg
 Pr==https://www.rjctx.com/dnrj/lupin
 badicam==>https://www.rjctx.com/dnrj/lupin
 anaconda
-idm
 Riffstation==>吉他扒谱(baiduyun)
