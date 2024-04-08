@@ -26,3 +26,4 @@ anaconda
 Riffstation==>吉他扒谱(baiduyun)
 adobe acrobat
 flow==>https://app.flowoss.com/
+photoshop==>https://www.rjctx.com/14240.html
