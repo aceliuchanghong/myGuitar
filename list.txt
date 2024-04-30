@@ -28,3 +28,4 @@ adobe acrobat
 flow==>https://app.flowoss.com/
 photoshop==>https://www.rjctx.com/14240.html
 BCompare
+typora==>https://zhuanlan.zhihu.com/p/648915268
