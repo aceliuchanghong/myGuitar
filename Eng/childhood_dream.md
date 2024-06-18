@@ -2,17 +2,17 @@ https://tabs.ultimate-guitar.com/tab/seraphine/childhood-dreams-chords-3307958
 
 Capo=1
 
-![img.png](img/eng/childhood_dream/img.png)
+![img.png](../img/eng/childhood_dream/img.png)
 
-![img1.png](img/eng/childhood_dream/img_1.png)
+![img1.png](../img/eng/childhood_dream/img_1.png)
 
-![img2.png](img/eng/childhood_dream/img_2.png)
+![img2.png](../img/eng/childhood_dream/img_2.png)
 
-![img3.png](img/eng/childhood_dream/img_3.png)
+![img3.png](../img/eng/childhood_dream/img_3.png)
 
-![img4.png](img/eng/childhood_dream/img_4.png)
+![img4.png](../img/eng/childhood_dream/img_4.png)
 
-![img5.png](img/eng/childhood_dream/img_5.png)
+![img5.png](../img/eng/childhood_dream/img_5.png)
 
 [Intro]
 Am     F
