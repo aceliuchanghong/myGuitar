@@ -7,7 +7,8 @@
 Stay by my side forever
 叶(かな)わない願(ねが)いだとしても
 Replay 許(ゆる)されぬ愛(あい)に
-幾度(いくど)もまた I'll drown myself in pain
+幾度(いくど)もまた
+I'll drown myself in pain
 
 I was lost in the grey
 Till you came and took my breath away
