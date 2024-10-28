@@ -1,12 +1,37 @@
 - [from](https://tvtropes.org/pmwiki/pmwiki.php/Main/RulesOfTheInternet)
 
+出名有趣的,互联网特有的幽默和文化标签
+1. Rule 1: "Do not talk about /b/"
+翻译：“不要谈论 /b/。”
+解释：/b/ 是 4chan 论坛的一个自由板块，以无主题、混乱、不受控制而闻名。这个规则类似于电影《搏击俱乐部》里的“不要谈论搏击俱乐部”，暗指 /b/ 上的内容应保持低调，不适合公开讨论。
 
-Divide by Zero: Trope namer is rule 37
-Rule 34: "There's porn of it"
-Rule 50: "There's a crossover with it"
-Rule 63: "There's a gender-flipped version of it"
-Serious Business: named by rule 46
-There Are No Girls on the Internet : Rule 30, memetic version
+2. Rule 2: "Do NOT talk about /b/"
+翻译：“千万不要谈论 /b/。”
+解释：与规则 1 强调同样的意思，加重语气，表明 /b/ 的内容应该彻底保持在特定圈子内，不为外人所知。
+
+3. Rule 34: "There's porn of it – no exceptions"
+翻译：“如果有某个东西存在，那么就会有它的色情版本——没有例外。”
+解释：这一规则表明，互联网上几乎任何事物都可能会被创造出色情内容，广泛且无所不包的网络文化延伸至每一个角落。
+
+4. Rule 35: "If no porn is found of it, it will be made"
+翻译：“如果还没有它的色情版本，那么它即将会被创造出来。”
+解释：这是对 Rule 34 的进一步延伸，暗示即便当前还没有的东西，也会随着时间被人们创造出来。
+
+5. Rule 50: "There's a crossover with it"
+翻译：“任何东西都可能与其他作品有跨界合作。”
+解释：表示网络文化中各种 IP、角色、题材的互相融合、混搭，给创作者提供了无限想象空间。
+
+6. Rule 63: "For every given male character, there is a female version of that character (and vice versa)"
+翻译：“每个男性角色都有对应的女性版本，反之亦然。”
+解释：网络文化中常见的“性别互换”现象，即粉丝们会创作出角色的性别反转版本，延续角色特征但以不同的性别呈现。
+
+7. Rule 101: "If it exists, there is an entire Wikipedia dedicated to it"
+翻译：“如果某个东西存在，就一定有一个专门的维基百科页面介绍它。”
+解释：互联网对每个主题都有详细的记录，从热门到小众，几乎所有主题都能找到专门的维基页面，反映了网络上知识的全面性和细致性。
+
+8. Rule 9001: "It's over 9000!"
+翻译：“超过9000了！”
+解释：来源于动漫《龙珠》，主角战斗力突破9000时的台词。后来成为网络上的流行语，用于夸张地表示某事物“极其强大、夸张或超出预期”。
 
 Rule 0: Don't fuck with cats.
 Rule 1: You don't talk about /b/. Explanation
