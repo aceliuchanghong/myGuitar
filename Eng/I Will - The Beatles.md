@@ -33,13 +33,13 @@ G|-1-------0H1---|
 D|---------------|
 
 [Verse 3]
-A         G#m     C#m     
+A                 G#m     C#m     
 Love you forever and forever
 F#m           B7   E | E7
 Love you with all my heart
-A         G#m     C#m   
+A              G#m     C#m   
 Love you whenever we're together
-F#m                   B7  
+F#m          B7   E | E7
 Love you when we're apart
 e|---------------|-0--------------|
 B|-----2-4-5---0-|--0---3-2-0-----|
